@@ -17,5 +17,5 @@ Example
 -------------
 ![4E4CE5A3-9170-419E-9BAC-93B38571C8DB](https://github.com/ThursdayGG/Roblox-Pinn-Cracker/assets/131311161/d654a62d-f80d-439b-b38b-89de76deab39)
 
-dm murden#0001 if stuck or need help
+dm murden#6666 if stuck or need help
 https://discord.gg/34b3HDMJ9V
